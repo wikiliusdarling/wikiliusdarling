@@ -8,7 +8,7 @@
 
 ( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - [<ins> guns.lol </ins>](https://guns.lol/karlgvuts) - [<ins> rentry </ins>](https://rentry.co/karlgvuts) )
 
-chud rewards
+i am a big FAN of wikilius, dont even joke with me boiii 🤬🤬🤬🤬
 
 [ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [ship-town](https://github.com/ship-town) , [ponytown-yumes](https://github.com/ponytown-yumes) , [fans-town](https://github.com/fans-town) , [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
