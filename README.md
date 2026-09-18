@@ -6,7 +6,7 @@
 
 ══════════════════════════════════
 
-( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - [<ins> guns.lol </ins>](https://guns.lol/karlgvuts) - [<ins> rentry </ins>](https://rentry.co/karlgvuts) )
+( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - [<ins> guns.lol </ins>](https://guns.lol/karlgvuts) - [<ins> rentry </ins>](https://rentry.co/karlgvuts) - [art  DUMB dump](https://wikiliuspartner.straw.page) )
 
 i am a big FAN of wikilius, dont even joke with me boiii 🤬🤬🤬🤬
 
